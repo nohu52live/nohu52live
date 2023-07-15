@@ -1,6 +1,6 @@
 ### Nohu 52 - Trang web nohu club đẳng cấp nhất
 
-[Nohu52]([link](https://nohu52.live/)) là ai và có gì đặc biệt Khám phá ngay các trò chơi trực tuyến hấp dẫn nhất chỉ có tại nohu club và cập nhật các ưu đãi nohu vip mới nhất
+[Nohu52](https://nohu52.live/) là ai và có gì đặc biệt Khám phá ngay các trò chơi trực tuyến hấp dẫn nhất chỉ có tại nohu club và cập nhật các ưu đãi nohu vip mới nhất
 
 - Địa chỉ: 153 Phạm Tuấn Tài, Cổ Nhuế, Từ Liêm, Hà Nội
 
